@@ -1,2 +1,2 @@
 # PCBeauty
-MADE BY BorgorDev on github! if you see this on BorgorDevVM its bc i use my malware on vms!
+MADE BY BorgorDev on github! If you see this on other accounts its fake!
